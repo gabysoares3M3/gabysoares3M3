@@ -2,7 +2,7 @@
 
 ###  👀 BEM VINDOS AO MEU PERFIL
 
-![](!![image](https://github.com/gabysoares3M3/gabysoares3M3/assets/170630269/4309f91e-d3a5-4708-bb76-2aa3d71fdb30))
+![](https://media1.tenor.com/m/P-8ZvqnS4AwAAAAC/dancing-cat-dancing-kitten.gif)
 
 
 
