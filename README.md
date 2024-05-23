@@ -1,0 +1,3 @@
+###- OLA, MEU NOME É GABY SOARES
+###- 👀 BEM VINDOS AO MEU PERFIL
+###-17 ANOS 
