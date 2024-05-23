@@ -2,7 +2,5 @@
 
 ###  👀 BEM VINDOS AO MEU PERFIL
 
-### 17 ANOS
+![](![image](https://github.com/gabysoares3M3/gabysoares3M3/assets/170630269/03e33a11-95bf-4c3e-9eda-3015ecdc8e56))
 
-
-![](https://tenor.com/pt-BR/view/wink-black-gif-19260179)
